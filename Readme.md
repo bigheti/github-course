@@ -9,4 +9,4 @@ Saiba mais em [willianjustemn.com.br](http://willianjsuten.com.br)
 
 Gostou do curso? Quer ajudar? Faça uma doação, até um café é válido =)
 
-Site: [alnaras.com](https://www.alnaras.com)
+Site: [alnars.com](https://www.alnars.co)
